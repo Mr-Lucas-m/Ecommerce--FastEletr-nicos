@@ -1,1 +1,1 @@
-# Loja-de-Eletr-nicos-E-commerce-
+# Loja-de-Eletronicos-E-commerce-
